@@ -1,3 +1,2 @@
-<img width="1080" height="1920" alt="Untitled366_20260510030459" src="https://github.com/user-attachments/assets/f2509ee7-436b-4e6d-a683-16aa5547094e" />
-
-        
+<img width="736" height="736" alt="Untitled395_20260701023753" src="https://github.com/user-attachments/assets/90ee5583-f40c-4b5e-a34f-8652650920c6" />
+    [rentry](https://rentry.co/zoluu)  [ata](https://sugucurse.atabook.org/)
